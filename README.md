@@ -1,5 +1,7 @@
 ![paruko](https://github.com/user-attachments/assets/595fabd5-8b90-403b-9e58-f1089b2e2686)
 
+  [![HitCount](https://hits.dwyl.com/paruf1sh/thebestfishinthesea.svg?style=flat-square)](http://hits.dwyl.com/paruf1sh/thebestfishinthesea)
+
 # i am a threat to national security
 !! Welcome to my page!! 
 
